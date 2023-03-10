@@ -38,7 +38,7 @@ For Running On Linux : `python3 XBitcoin.py`
 
 ---
 
-## if Needed Hunting With Speed and thread On Cloud and Use Postgres and NodeJS Technology in This Script and Hunting With Cloud and Power Performance [CPU] can Order Now Pro Version AtomXBitcoin . For Ordering Now Just Follow :
+## if Needed Hunting With Speed and thread On Cloud and Use Postgres and NodeJS Technology in This Script and Hunting With Cloud and Power Performance [CPU] can Order Now Pro Version XBitcoin . For Ordering Now Just Follow :
 
 
 # Programmer Telegram ID : [@cronos1402](https://t.me/Cronos1402)
